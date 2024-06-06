@@ -5,5 +5,5 @@ Meu nome é Anna Luiza Andrade
 -  Utilizo esse espaço para organização e compartilhamento dos meus projetos desenvolvidos                                                      
 ### Você pode entrar em contato comigo 📫                                                                                                          
   alurastartestudante@email.com                                                                                                                 @alurastartestudante
-
-  ![](https://media.tenor.com/6-u79qnh0v4AAAAM/choi-san-san.gif)
+  
+  ![](https://media.tenor.com/GqqiTpy6snoAAAAM/afonsinha.gif)
